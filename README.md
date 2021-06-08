@@ -10,5 +10,5 @@
 
 *  How to reach me: Contact me directly on this mail aryansrivatsava021@gmail.com.
 
-
+* [LINKEDIN ID ] https://www.linkedin.com/in/dande-aryan-srivatsava-61893b1b2/
 
